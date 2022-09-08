@@ -1,5 +1,3 @@
-Hi Dan and Neil,
-
 
 *** Introducing Myself ***
 
